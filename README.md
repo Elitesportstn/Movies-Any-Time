@@ -50,5 +50,5 @@ Cette politique peut être mise à jour à tout moment. Les changements seront p
 
 🔹 9. Nous Contacter
 Pour toute question ou demande concernant la confidentialité :
-📧 Email : support@moviesanytime.com
-🌐 Site web : https://moviesanytime.com
+📧 Email : elitesport.tn@gmail.com
+🌐 Site web : https://elitesportholding.com/
